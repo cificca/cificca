@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @cificca or Randy what ever works for you....
+- 👀 I’m interested in: it varies by the day or month.  I just deep for a few months then try something new.  but regularly into Machining, Electronics, Ham Radio, Audio, Electonics new and old.
+- Im trying to learn more aboput the software and programing side.  
+- I can be reached at rwross@telusplanet.net
